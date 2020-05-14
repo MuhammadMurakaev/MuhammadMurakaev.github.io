@@ -1,1 +1,0 @@
-# MuhammadMurakaev.github.io
